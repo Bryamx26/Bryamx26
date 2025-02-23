@@ -1,4 +1,4 @@
-## Hey I'm a IT Student who want always surpass myself.  👋
+## Hey, I'm an IT student who always strives to surpass myself.  👋
 
 <!--
 **Bryamx26/Bryamx26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
